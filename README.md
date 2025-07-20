@@ -51,8 +51,7 @@ My goal is to use my business education and analytical mindset to contribute mea
 
 ### 📫 Let’s Connect!
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-profile)  
-- 📧 [Email](mailto:your-email@example.com)
+- 💼 [LinkedIn](https://www.linkedin.com/in/diya-tyagi-647ba631a)  
 
 ---
 
